@@ -1,0 +1,1 @@
+Buradaki her şey denemedir
